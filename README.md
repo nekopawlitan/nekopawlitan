@@ -20,7 +20,7 @@
   [<img src="https://files.catbox.moe/ibj0eg.gif">](https://pronouns.cc/@pwppys) [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
   <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) <br>
   [<img src="https://files.catbox.moe/2hl6k8.gif">](https://pwppyys.carrd.co) [<img src="https://files.catbox.moe/ndv4ms.gif">](https://guns.lol/pwppys) <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> <br>
-  <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame) <br>
+  <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame) Thank you, PTWOF!<br>
   </details>
 
   <details>
