@@ -2,8 +2,14 @@
 
 <img src="https://files.catbox.moe/034kng.gif" width="295" align="left" alt="money power glory by lana del rey">
 
-$${\color{#f1b1c4}( \space ´ㅅ` \space Ｕ)ﾉｼ　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/er67gp.gif" width="20" alt="wan! wan!"><br>
-<img src="https://files.catbox.moe/j8jfya.gif" width="20" alt="wan! wan!"> 　 $${\color{#f9c8d2}always \space the \space color \space pink!　﹒౿ \space ₎₎}$$ <br>
+  <table>
+    <tr>
+      <td>
+     $${\color{#f1b1c4}( \space ´ㅅ` \space Ｕ)ﾉｼ　put \space bows \space on \space evrrything \space ,}$$　<img src="https://files.catbox.moe/er67gp.gif" width="20" alt="wan! wan!"><br>
+    　 <img src="https://files.catbox.moe/j8jfya.gif" width="20" alt="wan! wan!"> 　 $${\color{#f9c8d2}always \space the \space color \space pink!　﹒౿ \space ₎₎}$$ <br>
+      </td>
+    </tr>
+  </table>
 
   <details>
   <summary><img src="https://files.catbox.moe/9cpi0n.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒks \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
