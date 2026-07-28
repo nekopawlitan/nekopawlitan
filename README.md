@@ -12,7 +12,7 @@
   </table>
 
   <details>
-  <summary><img src="https://files.catbox.moe/9cpi0n.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒk𝓈 \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
+  <summary><img src="https://files.catbox.moe/9cpi0n.gif" width="20" alt="wan! wan!"> $${\color{#f1b1c4} \space ⬫　 \space .　ᥣiᥒks \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$</summary>
 
   <img src="https://files.catbox.moe/7j2hpz.gif" width="25" alt="wan! wan!"> [<img src="https://files.catbox.moe/09mnq6.gif">](https://pwppy-directory.carrd.co/) [<img src="https://files.catbox.moe/gbskpg.gif">](https://pwppy-directory.carrd.co/) <img src="https://files.catbox.moe/4pxz66.gif" width="25" alt="wan! wan!"> <br>
   [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) REMADE!!!SIGN NOW!!! <br> <br>
@@ -24,7 +24,7 @@
   </details>
 
   <details>
-  <summary> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　𑜀ყ \space friᥱᥒd𝓈! \space ゛ \space 𓈒　e}$$ <img src="https://files.catbox.moe/vgs5lv.gif" width="20" alt="wan! wan!"> </summary><br>
+  <summary> $${\color{#f9c8d2}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　ოყ \space friᥱᥒds! \space ゛ \space 𓈒　e}$$ <img src="https://files.catbox.moe/vgs5lv.gif" width="20" alt="wan! wan!"> </summary><br>
           $${\color{#feeae9}regarding \space my \space actual \space followings, \space i \space only \space follow \space my \space active \space friends \space or \space people \space i \space admire/want \space to \space be \space friends \space with \space but \space im \space too \space shy}$$ <br>
           $${\color{#feeae9}my \space awzzum \space littermates/family! \space =3}$$ <img src="https://files.catbox.moe/e84fjk.gif" width="20" alt="wan! wan!"> <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a>, <a href="https://github.com/dirkskatana">dirk</a> <br>
           $${\color{#feeae9}and \space the \space rest \space of \space mi \space pack \space !!}$$ <img src="https://files.catbox.moe/we4ucl.gif" width="20" alt="wan! wan!"> <a href="https://github.com/muzzledpup">muzzledpup!</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX!</a>, <br> <a href="https://github.com/pawyo">pawyo!</a> <a href="https://github.com/mothbear">mothbear</a> <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, and <a href="https://github.com/militarymutt">militarymutt</a>!
