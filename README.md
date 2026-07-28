@@ -20,7 +20,7 @@
   [<img src="https://files.catbox.moe/ibj0eg.gif">](https://pronouns.cc/@pwppys) [<img src="https://files.catbox.moe/gtf9r4.gif">](https://en.pronouns.page/@pwppy) <img src="https://files.catbox.moe/25nfwr.gif" width="20" alt="wan! wan!"> <br>
   <img src="https://files.catbox.moe/m2qax1.gif" width="20" alt="wan! wan!"> [<img src="https://files.catbox.moe/6t9553.gif">](https://pwppy.atabook.org/) <br>
   [<img src="https://files.catbox.moe/2hl6k8.gif">](https://pwppyys.carrd.co) [<img src="https://files.catbox.moe/ndv4ms.gif">](https://guns.lol/pwppys) <img src="https://files.catbox.moe/yssd7o.gif" width="20" alt="wan! wan!"> <br>
-  <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame) [<img src="https://files.catbox.moe/15wgq7.png" width="30">](https://github.com/pt-fashion)<br>
+  <a href="https://github.com/Vexuliii"><img src="https://drive.google.com/uc?id=1lN7sKiWEPOY-yZI6tOdTiwS1CYtRw1_i"></a> [<img src="https://files.catbox.moe/x2bvg2.png" width="30">](https://github.com/pt-walk-of-fame) [<img src="https://github.com/user-attachments/assets/dc1fdcce-e63f-484c-92de-808b54efad4a" width="30">](https://github.com/pt-fashion)<br>
   </details>
 
   <details>
@@ -36,3 +36,4 @@
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f1b1c4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#f1b1c4}pwppyys!}$$　<img src="https://files.catbox.moe/q0kzfp.gif" width="20" alt="wan! wan!">
 
 <img src="https://files.catbox.moe/h6e8tx.gif" width="295" align="left" alt="off to the races by lana del rey">
+
