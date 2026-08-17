@@ -10,9 +10,9 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/8a5123dc-7114-412f-8406-f31bf2d2869a" width="150" align="right" alt="florida kilos by lana del rey"> <img src="https://files.catbox.moe/qej5f2.png" width="350" align="right" alt="off to the races by lana del rey">
+<img src="https://github.com/user-attachments/assets/8a5123dc-7114-412f-8406-f31bf2d2869a" width="150" align="right" alt="florida kilos by lana del rey"> <img src="https://files.catbox.moe/rxlfgh.gif" width="500" align="right" alt="off to the races by lana del rey">
 
-<img src="https://files.catbox.moe/034kng.gif" width="295" align="left" alt="money power glory by lana del rey">
+<img src="https://files.catbox.moe/v2e4yw.png" width="300" align="left" alt="money power glory by lana del rey">
 
   <table>
     <tr>
@@ -47,5 +47,5 @@
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f1b1c4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#f1b1c4}pwppyys!}$$　<img src="https://files.catbox.moe/q0kzfp.gif" width="20" alt="wan! wan!">
 
-<img src="https://files.catbox.moe/h6e8tx.gif" width="295" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/rwyv8a.png" width="300" align="left" alt="off to the races by lana del rey">
 
