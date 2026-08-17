@@ -19,7 +19,7 @@
       <td>
      $${\color{#3a364a}abcs}$$ $${\color{#523f55}and}$$ $${\color{#8c5571}123s}$$　<img src="https://files.catbox.moe/7pwnrr.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/t9aikc.gif" width="120" alt="wan! wan!"> <img src="https://files.catbox.moe/ksxquu.gif" width="20" alt="wan! wan!">
  <br>
-    <img src="https://files.catbox.moe/kddaup.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/lia6tq.gif" width="20" alt="wan! wan!"> 　 $${\color{#b26484}you}$$ $${\color{#ce6e91}and}$$ $${\color{#f17ca2}me}$$ $${\color{#e895ab}are}$$ $${\color{#ddb2b6}meant}$$ $${\color{#d6c7bd}to}$$ $${\color{#d6c7bd}me}$$ <br>
+    <img src="https://files.catbox.moe/kddaup.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/lia6tq.gif" width="20" alt="wan! wan!"> 　 $${\color{#b26484}you}$$ $${\color{#ce6e91}and}$$ $${\color{#f17ca2}me}$$ $${\color{#e895ab}are}$$ $${\color{#ddb2b6}meant}$$ $${\color{#d6c7bd}to}$$ $${\color{#d6c7bd}be}$$ <br>
       </td>
     </tr>
   </table>
