@@ -17,16 +17,16 @@
   <table>
     <tr>
       <td>
-     $${\color{#3a364a}abcs}$$ $${\color{#523f55}and}$$ $${\color{#8c5571}123s}$$　<img src="https://files.catbox.moe/7pwnrr.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/t9aikc.gif" width="120" alt="wan! wan!"> <img src="https://files.catbox.moe/ksxquu.gif" width="20" alt="wan! wan!">
+     $${\color{#3a364a}ᥲხᥴs}$$ $${\color{#523f55}ᥲᥒძ}$$ $${\color{#8c5571}12꣓s}$$　<img src="https://files.catbox.moe/7pwnrr.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/t9aikc.gif" width="120" alt="wan! wan!"> <img src="https://files.catbox.moe/ksxquu.gif" width="20" alt="wan! wan!">
  <br>
-    <img src="https://files.catbox.moe/kddaup.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/lia6tq.gif" width="20" alt="wan! wan!"> 　 $${\color{#b26484}you}$$ $${\color{#ce6e91}and}$$ $${\color{#f17ca2}me}$$ $${\color{#e895ab}are}$$ $${\color{#ddb2b6}meant}$$ $${\color{#d6c7bd}to}$$ $${\color{#d6c7bd}be}$$ <br>
+    <img src="https://files.catbox.moe/kddaup.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/lia6tq.gif" width="20" alt="wan! wan!"> 　 $${\color{#b26484}ყ᥆ᥙ}$$ $${\color{#ce6e91}ᥲᥒძ}$$ $${\color{#f17ca2}me}$$ $${\color{#e895ab}ᥲrᥱ}$$ $${\color{#ddb2b6}mᥱᥲᥒt}$$ $${\color{#d6c7bd}t᥆}$$ $${\color{#d6c7bd}ხᥱ}$$ <br>
       </td>
     </tr>
   </table>
 
 
   <details>
-  <summary>$${\color{#d6c7bd}𓏵}$$ $${\color{#ddb2b6}𓏴}$$ 　 $${\color{#e895ab}see}$$ $${\color{#f17ca2}my}$$ $${\color{#ce6e91}socials!}$$　　 $${\color{#b26484}𓋫}$$ $${\color{#8c5571}⌖}$$ <img src="https://files.catbox.moe/nx5p8b.gif" width="20" alt="wan! wan!"> </summary>
+  <summary>$${\color{#d6c7bd}𓏵}$$ $${\color{#ddb2b6}𓏴}$$ 　 $${\color{#e895ab}sᥱᥱ}$$ $${\color{#f17ca2}mყ}$$ $${\color{#ce6e91}s᥆ᥴiᥲᥣs!}$$　　 $${\color{#b26484}𓋫}$$ $${\color{#8c5571}⌖}$$ <img src="https://files.catbox.moe/nx5p8b.gif" width="20" alt="wan! wan!"> </summary>
 
   <img src="https://files.catbox.moe/7j2hpz.gif" width="25" alt="wan! wan!"> [<img src="https://files.catbox.moe/09mnq6.gif">](https://pwppy-directory.carrd.co/) [<img src="https://files.catbox.moe/gbskpg.gif">](https://pwppy-directory.carrd.co/) <img src="https://files.catbox.moe/4pxz66.gif" width="25" alt="wan! wan!"> <br>
   [<img src="https://files.catbox.moe/ww3q3l.gif">](https://pwppyys.straw.page/) REMADE!!!SIGN NOW!!! <br> <br>
@@ -38,12 +38,12 @@
   </details>
 
   <details>
-  <summary><img src="https://files.catbox.moe/q4r4ms.gif" width="20" alt="wan! wan!"> $${\color{#3a364a}𓊆}$$ 　 $${\color{#523f55}my}$$ $${\color{#8c5571}friends!}$$ 　 <img src="https://files.catbox.moe/a37frt.gif" width="20" alt="wan! wan!"> 　 $${\color{#e895ab}⏕}$$ $${\color{#d6c7bd}𓏏𓏏}$$ </summary><br>
+  <summary><img src="https://files.catbox.moe/q4r4ms.gif" width="20" alt="wan! wan!"> $${\color{#3a364a}𓊆}$$ 　 $${\color{#523f55}mყ}$$ $${\color{#8c5571}friᥱᥒძs!}$$ 　 <img src="https://files.catbox.moe/a37frt.gif" width="20" alt="wan! wan!"> 　 $${\color{#e895ab}⏕}$$ $${\color{#d6c7bd}𓏏𓏏}$$ </summary><br>
           <img src="https://files.catbox.moe/4no5z4.png" width="300" align="left" alt="off to the races by lana del rey"> <br><br><br><br><br>
            <img src="https://files.catbox.moe/9y8loh.gif" width="120" alt="wan! wan!">
   <a href="https://github.com/muzzledpup">ferris!</a> $${\color{#d6c7bd}and}$$ <a href="https://github.com/Battishxx">calvin!</a> <img src="https://files.catbox.moe/7u0k07.gif" width="20" alt="wan! wan!"> <img src="https://files.catbox.moe/jfxnmg.gif" width="20" alt="wan! wan!"> <br>
           <img src="https://files.catbox.moe/1tmgjf.gif" width="20" alt="wan! wan!"> $${\color{#d6c7bd}mi \space packmates}$$ <a href="https://github.com/MrPapbee">papbee</a>, <a href="https://github.com/06chromis">chromis</a>, <a href="https://github.com/hyacinethia">genesis</a>, <a href="https://github.com/dirkskatana">dirk</a> <br>
-          $${\color{#d6c7bd}mi \space sled \space team!}$$ <img src="https://files.catbox.moe/wutz56.gif" width="20" alt="wan! wan!"> <a href="https://github.com/pawyo">pawyo!</a> <a href="https://github.com/mothbear">marcel</a> <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/pawfectangel">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, $${\color{#d6c7bd}and}$$ <a href="https://github.com/PinkiePieExplosion">shepherd</a>$${\color{#d6c7bd}!}$$ <br>
+          $${\color{#d6c7bd}mi \space sled \space team!}$$ <img src="https://files.catbox.moe/wutz56.gif" width="20" alt="wan! wan!"> <a href="https://github.com/pawyo">pawyo!</a> <a href="https://github.com/mothbear">marcel</a>, <a href="https://github.com/achillesofphthia">ej</a>, <a href="https://github.com/pawfectangel">angel</a>, <a href="https://github.com/Teratophilia">roman</a>, <a href="https://github.com/militarymutt">riley</a>, $${\color{#d6c7bd}and}$$ <a href="https://github.com/PinkiePieExplosion">shepherd</a>$${\color{#d6c7bd}!}$$ <br>
   </details>
 
 <img src="https://files.catbox.moe/gu6kz3.gif" width="150" align="left" alt="off to the races by lana del rey"> <img src="https://files.catbox.moe/11m8y3.gif" width="150" align="left" alt="off to the races by lana del rey"> <br><br><br><br>
