@@ -47,5 +47,7 @@
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=f1b1c4&label=_　_𑁥౿_　_𐂯_　" alt="view counter is prolly down"> 　　𑣲 　　 $${\color{#f1b1c4}pwppyys!}$$　<img src="https://files.catbox.moe/q0kzfp.gif" width="20" alt="wan! wan!">
 
+this is currently undergoing a redesign :3 please be patient ! <3
+
 <img src="https://files.catbox.moe/rwyv8a.png" width="300" align="left" alt="off to the races by lana del rey">
 
