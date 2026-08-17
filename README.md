@@ -10,7 +10,7 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/8a5123dc-7114-412f-8406-f31bf2d2869a" width="150" align="right" alt="florida kilos by lana del rey"> <img src="https://files.catbox.moe/rxlfgh.gif" width="400" align="right" alt="off to the races by lana del rey">
+<img src="https://github.com/user-attachments/assets/8a5123dc-7114-412f-8406-f31bf2d2869a" width="150" align="right" alt="florida kilos by lana del rey"> <img src="https://files.catbox.moe/rxlfgh.gif" width="200" align="right" alt="off to the races by lana del rey">
 
 <img src="https://files.catbox.moe/v2e4yw.png" width="300" align="left" alt="money power glory by lana del rey">
 
